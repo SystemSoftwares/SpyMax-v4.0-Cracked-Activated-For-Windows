@@ -1,4 +1,4 @@
-Read This Before Downloading (After Clicking On This Link Click (Slow Download) After That Click (View/Download) and You Will Be In The Download Page.(You Can Press On Download On Your Right The Software Will Be Downloaded).
+Read This Before Downloading (After Clicking On This Link Click (Slow Download) Sometimes You Should Click On Slow Download Two Times After That Click (View/Download) and You Will Be In The Download Page.(You Can Press On Download On Your Right The Software Will Be Downloaded).
 The Download is Only Available On This Link
 Download Link: 
 
